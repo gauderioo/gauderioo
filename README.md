@@ -1,0 +1,4 @@
+- 👋 Olá, me chamo Felippe
+- 👀 Estou interessado em minha carreira profissional
+- 🌱 Faço cursos online de barbeiro
+- 💞️ Sou coloaborador em uma barbearia juntamente com o meu pai
